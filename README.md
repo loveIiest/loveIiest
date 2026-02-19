@@ -5,7 +5,7 @@
 
 <p><b>whisper to interact,</b> I am usually off-tab. I am typically doing college work.<br>
   I am almost always sitting with <a href="https://github.com/metaIIic" rel="nofollow">@metaIIic&ZeroWidthSpace;</a>. If I am, please INT with caution.<br>
-  I kin Reed Richards, and self-ship with Sue Storm and Victor Vondoom.  <br>
+  I kin Reed Richards, and self-ship with Sue Storm and Victor von Doom.  <br>
   I kinda don't like doubles, but I don't make it a huge deal. Just don't compete.<br>
   
  
